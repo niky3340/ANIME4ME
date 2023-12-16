@@ -70,4 +70,4 @@
 
 
 
-<a href="https://rareanimes.me/home/page/2/">Next Page</a>
+<a href="https://niky3340.github.io/niky3340/">Next Page</a>
