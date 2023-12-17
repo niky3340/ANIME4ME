@@ -74,4 +74,8 @@
 
 
 
-<a href="https://niky3340.github.io/niky3340/">Next Page</a>
+<a href="https://niky3340.github.io/niky3340/">Next Page</a
+
+
+<img src="https://content.tupaki.com/en/feeds/2023/12/01/212181-animal.webp" jsaction="VQAsE" class="sFlh5c pT0Scc iPVvYb" style="max-width: 1200px; height: 249px; margin: 0px; width: 415px;" alt="Movie Review : 'Animal' | Animal Movie Review" jsname="kn3ccd" aria-hidden="false">                                                                    
+<a href="https://shrs.link/Xbnu0z" title="Animal 2023 Hindi 720p 480p HDScr Rip">Animal 2023 Hindi 720p 480p HDScr Rip</a>
